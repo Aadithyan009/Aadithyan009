@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Aadithyan009
-- 👀 I’m interested in food
-- 🌱 I’m currently learning nothing
-- 💞️ I’m looking for you beautiful smile
+- 👀 I’m interested with you
+- 🌱 I’m currently learning about You
+- 💞️ I’m looking for your beautiful smile
 - 📫 How to reach me ... come to my heart
 - 😄 Pronouns:words through mouth
 - ⚡ Fun fact: just look your face
