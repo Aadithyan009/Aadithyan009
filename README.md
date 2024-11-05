@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Aadithyan009
 - 👀 I’m interested in food
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on mr beast
+- 💞️ I’m looking for you beautiful smile
 - 📫 How to reach me ... come to my heart
-- 😄 Pronouns⚔️
+- 😄 Pronouns:words through mouth
 - ⚡ Fun fact: just look your face
 
 <!---
